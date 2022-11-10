@@ -1,0 +1,1 @@
+![alt text](https://fakeimg.pl/250x100/)
